@@ -6,3 +6,4 @@ I will inform you by email about marathons-running.
 Participation is free.
 
 1. Nijat Amrastanov | namrastanov@gmail.com
+2. Fuad Fataliyev | fuad0fataliyev0@gmail.com
